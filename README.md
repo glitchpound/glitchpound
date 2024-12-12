@@ -7,3 +7,5 @@ AM I TO FIGHHTTT IT
 OR BE DELIGHTEDDDDD
 
 I MISS THE QUIET YES I DO.
+
+![](https://i.postimg.cc/brJ602M9/IMG-1939.png)
